@@ -75,7 +75,7 @@ The analysis provided key insights such as:
 
 **Mohammed Aqlath A**  
 *Data Analytics Intern – Brainwave Matrix Solutions*  
-[LinkedIn Profile](https://www.linkedin.com)
+[LinkedIn Profile](www.linkedin.com/in/mohammed-aqlath-a-26baa3248)
 
 ---
 
