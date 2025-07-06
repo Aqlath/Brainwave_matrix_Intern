@@ -1,4 +1,4 @@
-# 📊 Data Analytics Project – Brainwave Matrix Solutions
+# 📊 Data Analytics/Science Project – Brainwave Matrix Solutions
 
 ## 🔍 Project Overview
 
